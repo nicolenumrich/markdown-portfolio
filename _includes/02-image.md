@@ -1,0 +1,1 @@
+![Nicole trying to figure out GitHub](https://img.buzzfeed.com/buzzfeed-static/static/2019-04/24/14/asset/buzzfeed-prod-web-05/sub-buzz-1231-1556130239-1.png?resize=990:558?output-quality=auto&output-format=auto&downsize=640:*)
